@@ -1,2 +1,2 @@
 # Auula-2
-![](https://giphy.com/gifs/thedodo-cute-the-dodo-cosmo-cat-JpN2GBlSyFJDqfOM5j)
+![](https://giphy.com/gifs/justviralnet-cat-hilarious-typing-H1dxi6xdh4NGQCZSvz)
